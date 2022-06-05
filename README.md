@@ -1,2 +1,2 @@
 # natethegreat
-For my Github Profile.
+For my Github Profile. Hi there
